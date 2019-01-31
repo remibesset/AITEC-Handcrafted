@@ -1,1 +1,1 @@
-Bienvenue sur Handcrafted
+Bienvenue sur Handcrafted la plateforme qui augmente votre créativité
